@@ -1,0 +1,5 @@
+- hey! im your local cool guy!
+- i like fnf
+- i have no idea how to code
+- cool-ass friend of greatsk8r. say hi to em for me once you reach out to them
+- you can reach out to me on: github (here), twitter (you aint gonna get the @ ez kid), discord (also not gonna get the @), roblox, also i can grant the @ upon acceptance of your request
